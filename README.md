@@ -1,4 +1,4 @@
-# Hi there, I’m CacheMeeIfYouCan 👋
+# Hi there, I’m Sneha Rajput   ( CacheMeeIfYouCan ) 👋
 
 🌱 **Student | Java Learner | Aspiring Web Dev & AI Enthusiast**
 
